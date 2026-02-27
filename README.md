@@ -1,3 +1,6 @@
+<p align="center"><img width="550" height="622" alt="Без названия455_20260227230439" src="https://github.com/user-attachments/assets/4fe36157-8fe9-4dce-8150-5cb8300b0b15" />
+
+
 $${\color{darkred} ── ⋆⋅✦⋅⋆ ──}$$
 
 $${\color{darkred}, . \space "Valar \space morghulis," \space said \space Missandei, \space in \space High \space Valyrian.}$$
