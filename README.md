@@ -1,14 +1,10 @@
-<p align="center"><img width="550" height="622" alt="Без названия455_20260227230439" src="https://github.com/user-attachments/assets/4fe36157-8fe9-4dce-8150-5cb8300b0b15" />
 
 
 $${\color{darkred} ── ⋆⋅✦⋅⋆ ──}$$
 
 $${\color{darkred}, . \space "Valar \space morghulis," \space said \space Missandei, \space in \space High \space Valyrian.}$$
 
-<p align="center"><img width="550" height="622" alt="8d7cc3bf8ad7fb03fa3d3a8804057e06" src="https://github.com/user-attachments/assets/dc719582-3417-4f3a-a3dd-360f2fa36dfe" />
-
-<p align="center"><img width="550" height="622" alt=![animation gif mp4 (1)](https://github.com/user-attachments/assets/367cfcae-5bf8-4667-887c-826bf75a0dc5)
+<p align="center"><img width="736" height="856" alt="Без названия461_20260327171854" src="https://github.com/user-attachments/assets/5edf9216-e426-4f87-a64b-9228c3a016c4" />
 
 $${\color{darkred} — "All \space \space men \space must \space die," \space Dany \space agreed, \space "but \space not \space for \space a \space long \space while, \space we \space may \space pray."}$$
 $${\color{darkred} ── ⋆⋅✦⋅⋆ ──}$$
-<p align="center"><img width="550" height="622" alt="Picsart_26-01-12_15-41-38-020" src="https://github.com/user-attachments/assets/cc261d4c-fe3f-41a8-8e99-e4ce3eaf4357" />
